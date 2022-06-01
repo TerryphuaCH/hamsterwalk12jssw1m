@@ -1,1 +1,0 @@
-# hamsterwalk12jssw1m
